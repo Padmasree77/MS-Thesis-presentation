@@ -1,1 +1,1 @@
-# MS-Thesis-presentation
+While pursuing my master’s degree at Jahangirnagar University, I worked as a Thesis Student. The document presented here is the result of my dedicated research, carefully developed to address key scientific questions. It was thoroughly reviewed and was formally presented to the university’s research committee, where I successfully defended my work
